@@ -1,4 +1,4 @@
 # frontendo
 
-luis é otaku fedido e feio
+lUIS É FEIO
 
